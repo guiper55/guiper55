@@ -11,4 +11,4 @@
 
 - 📫 How to reach me **guiper55@gmail.com**
 
-- ⚡ Fun fact **Oneye 😜**
+
